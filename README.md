@@ -1,2 +1,3 @@
 # Dziaranki-u-anki-Tattoo 
-https://dziaranki.com/
+https://hedxm7.webwave.dev/
+dziaranki.com
